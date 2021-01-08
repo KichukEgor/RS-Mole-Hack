@@ -1,1 +1,1 @@
-# RS-Mole-Hack
+https://kichukegor.github.io/RS-Mole-Hack/
